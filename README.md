@@ -8,11 +8,11 @@
 
 - 🤝 I’m **fearless** and **love to learn new technology**
 
-- 🌱 I am passionate about contributing **to small changes in the world**
+- 🌱 I’m passionate about contributing **to small changes in the world**
 
 - 💬 I speak **English, Korean, Japanese and Dutch**
 
-- 📫 How to reach me **jamiekim828@gmail.com**
+- 📫 How to reach me : **jamiekim828@gmail.com**
 
 - ⚡ Fun fact : **I bake really nice cakes**
 
