@@ -8,7 +8,7 @@
 
 - 🤝 I’m **fearless and love to learn new tech**
 
-- 🌱 I became a developer to contribute **to small change in the world**
+- 🌱 I pasionate abour contributing **to small changes in the world**
 
 - 💬 I speak **English, Korean, Japanese and Dutch**
 
