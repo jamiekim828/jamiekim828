@@ -6,15 +6,15 @@
 
 - 👯 I like to work in a **team**
 
-- 🤝 I’m **fearless and love to learn new tech**
+- 🤝 I’m **fearless** and **love to learn new technology**
 
-- 🌱 I pasionate abour contributing **to small changes in the world**
+- 🌱 I am passionate about contributing **to small changes in the world**
 
 - 💬 I speak **English, Korean, Japanese and Dutch**
 
 - 📫 How to reach me **jamiekim828@gmail.com**
 
-- ⚡ Fun fact : **I bake cakes**
+- ⚡ Fun fact : **I bake really nice cakes**
 
 
 <p align="left">
